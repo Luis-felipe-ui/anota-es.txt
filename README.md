@@ -1,1 +1,1 @@
-Quero ser um programador pro exterior, morar nos EUA, e visitar meus pais aq no Brasil
+Quero ser um programador trabalhando no exterior, morar nos EUA.
